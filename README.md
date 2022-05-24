@@ -7,7 +7,7 @@ Som na SPŠE ......
 
 ## Skills
 - anj b2
-- klavir more
+- neviem
 ---
 # Moja praca
 ahsuashasudaifbsdjaosaiscb
